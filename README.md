@@ -1,1 +1,1 @@
-# Gimici-Hashminer-gpt.io
+# *Hashminer-gpt.io*
